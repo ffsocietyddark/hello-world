@@ -1,3 +1,0 @@
-# hello-world
-teapot
-I was once a teapot, but those who used me broke me over the years. One day, it was revealed to me that the house I belonged to thought I wasn't a good look for the house. I was ugly to them and they valued appearance and had no love for me or loyalty. Fortunately, another family visited where I lived and overheard my family talking about getting rid of me. For some reason, this family saw value in me, and decided to adort me into their family. However, there was something that they demanded, I could only become family if I would allow them to color me a little differently. I agreed...
